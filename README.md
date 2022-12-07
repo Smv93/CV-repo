@@ -1,1 +1,1 @@
-https://Mik.Shcherbak.github.io/rsschool-cv/cv
+https://Smv93.github.io/rsschool-cv/cv
